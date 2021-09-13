@@ -1,0 +1,1 @@
+# 8-sinif-yeni-nesil-inkilap-tarihi-defteri-32
